@@ -38,7 +38,7 @@ The Quieter You Become, The More You Are Able To Hear
 
 ⚡️ Twitter : https://twitter.com/IA3TheDev_il/status/1697325818442031550
 
-⚡️ Tik Tok : https://www.tiktok.com/@ia3thedevil/video/7273559346749984033
+⚡️ Tik Tok : https://www.tiktok.com/@ia3thedevil/video/7279006722109263137
 
 ⚡️ Youtube : https://youtube.com/shorts/2La0vt_bL84
 
